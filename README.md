@@ -40,6 +40,14 @@ Here are some ideas to get you started:
 ### linux kernel/OS kernel
 ![image](https://github.com/user-attachments/assets/aa474657-83e2-4de7-8f87-f7cc0b31c0e2)
 
+🎞️---
+### App demo video
+https://github.com/user-attachments/assets/d6f0b12a-8c74-4d24-bc6a-52ccb03ad443
+
+https://github.com/user-attachments/assets/adf59def-b23d-4a8a-b91b-c6ae7472617f
+
+https://github.com/user-attachments/assets/17ac0350-31a2-4639-84b7-d5f2dda98b66
+
 ☕️---
 ### Hobbies and interests
 🎼listening music
