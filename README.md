@@ -42,6 +42,9 @@ Here are some ideas to get you started:
 
 🎞️---
 ### App demo video
+
+https://github.com/user-attachments/assets/576f23a2-f525-4050-9797-63c7b8479e1d
+
 https://github.com/user-attachments/assets/d6f0b12a-8c74-4d24-bc6a-52ccb03ad443
 
 https://github.com/user-attachments/assets/adf59def-b23d-4a8a-b91b-c6ae7472617f
