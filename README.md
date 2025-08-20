@@ -54,9 +54,11 @@ https://github.com/user-attachments/assets/17ac0350-31a2-4639-84b7-d5f2dda98b66
 ☕️---
 ### Hobbies and interests
 🎼listening music
-🏀basket ball
+🏀basketball
 🧶crochet
-![image](https://github.com/user-attachments/assets/79d8722b-7773-4901-8cef-af82fb8eede1)
+
+![IMG_E1658](https://github.com/user-attachments/assets/addfdc1d-43a8-4110-951d-89ee29b005a9)
+
 <img width="480" height="480" alt="image" src="https://github.com/user-attachments/assets/dac0a0b9-f1bf-4de7-9e09-d82b1fb6766f" />
 
 
